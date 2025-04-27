@@ -1,6 +1,6 @@
 ### <ins> _ The Web Sys </ins> <sub> . . . *webster/web, fiji, myci* </sub>
 
-21 , C-DID system , it/its[+](https://prns.cc/wooww)
+21 , C-DID system , [it/its+](https://prns.cc/wooww)
 
 schizo faildyke with a personality disorder
 
@@ -17,3 +17,5 @@ ask me for my discord
 - proshippers
 - minors
 - if u otherwise pmo i'll just block. i might not even explain. godspeed
+
+<!-- if youre reading this ur a nerd !!!!!!!!!! -->
