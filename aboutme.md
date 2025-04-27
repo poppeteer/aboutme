@@ -4,7 +4,7 @@
 schizo faildyke with a personality disorder
 ask me for my discord
 
-![transparent png of a little porcelain clown cat figurine](https://64.media.tumblr.com/30239b630e5a0707cbdbd199463d3c34/171fb63fe7d1fc5b-30/s1280x1920/c921d85d5d3cddaf9a8047ff2cd58f70915fce45.png)
+![transparent png of a little porcelain clown cat figurine](https://64.media.tumblr.com/30239b630e5a0707cbdbd199463d3c34/171fb63fe7d1fc5b-30/s640x960/c921d85d5d3cddaf9a8047ff2cd58f70915fce45.png)
 
 ### byi
 	before you interact
