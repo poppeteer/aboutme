@@ -1,17 +1,20 @@
 ## the web sys
 <sub> webster/web, fiji, myci </sub>
+
 21 , C-DID system , it/its [+more](https://prns.cc/wooww)
 schizo faildyke with a personality disorder
 ask me for my discord
 
 ### byi
 <sub> before you interact </sub>
+
 - some of my ponies r introjects (marked "introj"), some arent (marked "sys" or unmarked)
 - i have autism and my manner of speaking fluctuates a lot, i dont rly use tone tags that often so ask for clarification if my tone is unclear
 - idc abt booping or sneezing or anything, it's pixels, just dont ponyfuck me or flirt with me lmfao i have a partner
 
 ### dni
 <sub> do not interact </sub>
+
 - proshippers
 - minors
 - if u otherwise pmo i'll just block. i might not even explain. godspeed
