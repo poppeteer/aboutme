@@ -1,10 +1,8 @@
 ### <ins> 🕸️ The Web Sys </ins> <sub> . . . *webster/web, fiji, myci* </sub>
 
-21 , C-DID system , [it/its+](https://prns.cc/wooww)
-
+- . . . 21 , C-DID system , [it/its+](https://prns.cc/wooww)
 - . . . schizo faildyke w/ a personality disorder
-
-ask me for my discord
+- . . . ask me for my discord
 
 ### <ins> 🕸️ BYI </ins> <sub> . . . *before you interact* </sub> 
 
