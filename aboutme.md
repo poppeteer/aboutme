@@ -2,7 +2,7 @@
 
 21 , C-DID system , [it/its+](https://prns.cc/wooww)
 
-- . . . schizo faildyke w/ personality disorders
+- . . . schizo faildyke w/ a personality disorder
 
 ask me for my discord
 
