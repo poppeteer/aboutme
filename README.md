@@ -1,6 +1,6 @@
 ### <ins> 🕸️ The Web Sys </ins> <sub> . . . *webster/web, fiji, myci* </sub>
 
-- . . . 21 , C-DID system , [it/its+](https://prns.cc/wooww)
+- . . . 23 , polyfrag system , [it/its+](https://prns.cc/wooww)
 - . . . schizo faildyke w/ a personality disorder
 - . . . ask me for my discord
 
@@ -12,7 +12,7 @@
 
 ### <ins> 🕸️ DNI </ins> <sub> . . . *do not interact* </sub> 
 
-- . . . proshippers
+- . . . transmisogynists/if u believe in transmisandry
 - . . . minors
 - . . . if u otherwise pmo i'll just block. i might not even explain. godspeed
 
